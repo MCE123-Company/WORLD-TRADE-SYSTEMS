@@ -1,2 +1,2 @@
-# WORLD-TRADE-SYSTEMS
+# WORLD TRADE SYSTEMS
 World Trade Systems
